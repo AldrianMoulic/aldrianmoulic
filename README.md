@@ -1,2 +1,2 @@
-# Aldria Mmoulic - Allison Roe Lacia - Rexter Maudo - Rian Galdican Lacorte
+# Aldria Moulic - Allison Roe Lacia - Rexter Maudo - Rian Galdican Lacorte
  
